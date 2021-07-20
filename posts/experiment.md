@@ -1,0 +1,19 @@
+---
+title: "An Experiment"
+date: "2020-09-13"
+---
+
+I woke up a bit late as typical and rushed to get down from Maseeh to the Tent (about a 2 minute journey). When I got there, I didn’t quite understand what was going on. I recognized a bunch of friends walking around the different “booths” of various organizations it seemed like. I followed along. In the middle of the Tent during Rush Kickoff 2019, I noticed there were large tables of free shirts of many different designs that people were grabbing. I followed along. One of my friends took cards from many different IFC communities that showcased many of the events that they were hosting. I followed along. The whole atmosphere seemed like a marketplace hustling and bustling. 
+
+One of my friends said that we are going across the river to visit an IFC community. I don’t remember the name anymore. My friend went ahead, so I was just chilling and getting ready to go. At this moment, few of the brothers from Beta Theta Pi stopped me and told me about some of the fun events they are having. Reluctant to refuse their nice gesture and friendly essence,  I was heading to a fun-filled day of food and friends at 119 Bay State Road, Boston, MA. 
+
+As I got off at their house, I saw a dunk tank outside. Turns out that they were having a carnival, as confirmed when I saw (but did not ride) a bull in the library of the house. Talking with many brothers and just hanging out with others, I did feel that I, a Muslim First-Gen/Low Income immigrant from Long Island, NY and from Pakistan, was accepted by these members of the IFC community.
+
+To see what else the IFC community had to offer, I took a long walk the next day along Bay State Road, Beacon Street, and more. These are some of the common streets for many IFC communities. I wanted to just “drop in” to some communities to see how they were. I toured many houses that day. 
+
+Regardless, I was able to witness many different identities, communities, people, and traditions. Most of the communities really valued the idea of brotherhood, which I thought was really meaningful as an incoming new student. There were many different facets of each IFC community, something that I find a strength of the organization overall. Some communities were heavily interested in sports and had unique Super Bowl traditions. Other communities really valued building things, true to the phrase “Mens et Manus.” My fraternity even had a shop that brothers can use to build their own projects in addition to brotherhood projects. Other IFC communities were defined by the “work hard, play hard” principle as they had competitive gaming interests in addition to excelling academically and professionally. This was especially highlighted in many houses by the inclusion of pool tables, foosball tables, gaming consoles, libraries, and much much more. 
+
+After that day, I began to go to many more exciting events that Beta Theta Pi hosted as part of Rush. For instance, I was able to go to paintball and indoor go- kart racing for the first time in my life! This, along with the rest of recruitment,  really cemented my positive perspective on the unique, diverse, and incredible IFC community, especially Beta Theta Pi. There were so many incredible people that I met and got to know during the process. Inherently and in the background, I was finding my next friend group, my next pset group, and my “people” overall.
+
+The entire experiment of getting introduced to the IFC was really action-packed and filled with many people who actually cared about my whole being and personality rather than just being another number to their organization roster. What I learned overall from my experiment was that the IFC community was very diverse in its interests, locations, people, traditions, events, food, houses, majors, identities, class, vans, composites, nerdiness, sportiness, quirkiness, and values. This is big. 
+
