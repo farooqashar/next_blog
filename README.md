@@ -1,1 +1,1 @@
-This is a starter template for [Learn Next.js](https://nextjs.org/learn).
+This Next.js project is hosted on Vercel at https://next-blog-self.vercel.app/.
